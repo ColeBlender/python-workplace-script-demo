@@ -102,3 +102,5 @@ My links:
 - YouTube 👉 https://youtube.com/@coleblender
 - X 👉 https://twitter.com/ColeBlender
 - IG 👉 https://www.instagram.com/yazzibelani
+
+Video 👉 https://www.youtube.com/watch?v=iSnO5yY3JQg
